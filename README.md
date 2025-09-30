@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **python**
 
-- 📫 How to reach me **suhaniagarwal@jklu.edu.in**
+- 📫 How to reach me **suhaniagarwal1517@gmail.com**
 
 - ⚡ Fun fact **I am definitely humorous**
 
